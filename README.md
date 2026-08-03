@@ -1,1 +1,1 @@
-繁體 epub
+繁體 epub / azw3
