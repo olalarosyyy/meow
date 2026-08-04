@@ -1,1 +1,1 @@
-繁體電子書 epub / azw3
+繁體電子書 EPUB / MOBI / AZW3
